@@ -1,3 +1,3 @@
-YA PROSTO LAMER
-NENAVIZHU PISATT KOD
-My pronouns are Fag/Got
+- YA PROSTO LAMER
+- NENAVIZHU PISATT KOD
+- My pronouns are Fag/Got
